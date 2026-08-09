@@ -23,3 +23,8 @@ more random info drop I hate haters who doesn't respect others pls son sonion so
 
 for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
 anyways gonna add smth interesting here later buh
+
+___
+
+**btw if you want to be part of my online fam (which I think anyone will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
+DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
