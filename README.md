@@ -21,7 +21,7 @@
 
 ___
 
--more random info drop I hate haters who doesn't respect others pls son sonion sonic song sonlyric plssss-
+- more random info drop I hate haters who doesn't respect others pls son sonion sonic song sonlyric plssss -
 
 ` for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
 anyways pls stop y'all PMO.
