@@ -1,11 +1,13 @@
+|___|
 ![bleh](https://github.com/socialisolation/ashes/blob/8343344d5889384cd56a6d447ed1d16ffe2fa108/df02b171-3717-4a6b-9729-c4b5ef9ce5d9.jpeg)
+|___|
 
 ***╮ 𐙚  .   _/ — “ you've hurt yourself and all you were trying to do is show how much you loved them,but ended up feeling unloved. that's why we learn from mistakes,no matter what we'll be useless in reach of love.it was your choice.you know that.. „  · †╭***
 
-*I pretty much like PEAKy blinders. pbs fans int I'm desperate vro _*
+`I pretty much like PEAKy blinders. pbs fans int I'm desperate vro`
 
-` ok so
-"can I be Ur frie" I'm suspecting szpd and am not interested but sure wtv just don't expect me to int much K (I'm not even that cool why do you wanna be my friend??)`
+*ok so
+"can I be Ur frie" I'm suspecting szpd and am not interested but sure wtv just don't expect me to int much K (I'm not even that cool why do you wanna be my friend??)*
 
 ` I only play pt soo uh twin I only have yt n disc I don't use Tiktok EW no hate to who uses it but as someone who used too I think it's not healthy lowk SRS. ppl who use it IWC not that srs tbh js...don't be weird
   
@@ -21,8 +23,8 @@ ___
 
 -more random info drop I hate haters who doesn't respect others pls son sonion sonic song sonlyric plssss-
 
-~~` for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
-anyways pls stop y'all PMO.~~
+` for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
+anyways pls stop y'all PMO.
 
 ___
 
