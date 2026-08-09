@@ -4,8 +4,8 @@
 
 *I pretty much like PEAKy blinders. pbs fans int I'm desperate vro _*
 
-* ok so
-"can I be Ur frie" I'm suspecting szpd and am not interested but sure wtv just don't expect me to int much K (I'm not even that cool why do you wanna be my friend??)
+` ok so
+"can I be Ur frie" I'm suspecting szpd and am not interested but sure wtv just don't expect me to int much K (I'm not even that cool why do you wanna be my friend??)`
 
 ` I only play pt soo uh twin I only have yt n disc I don't use Tiktok EW no hate to who uses it but as someone who used too I think it's not healthy lowk SRS. ppl who use it IWC not that srs tbh js...don't be weird
   
@@ -21,12 +21,12 @@ ___
 
 -more random info drop I hate haters who doesn't respect others pls son sonion sonic song sonlyric plssss-
 
-` for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
-anyways gonna add smth interesting here later buh
+~~` for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
+anyways pls stop y'all PMO.~~
 
 ___
 
-  **btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
+**btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
 
 - DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
 
