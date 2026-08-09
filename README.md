@@ -26,5 +26,6 @@ anyways gonna add smth interesting here later buh
 
 ___
 
-**btw if you want to be part of my online fam (which I think anyone will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
-DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
+**btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
+
+- DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
