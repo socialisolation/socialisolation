@@ -32,4 +32,4 @@ ___
 
 - DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
 
-# `` grace (florian) x tommy (mackenzie) canon literally oml can't you see we're married???? I love my husband I love them I luv me like my gracie...too bad she's dead (reincarnated as fli) smooches ok ik too close IM SORRY VIEWERS
+# `` grace (florian) x tommy (mackenzie) canon literally oml can't you see we're married???? I love my husband I love them I luv me like my gracie...too bad she's dead (reincarnated as fli) smooches ok ik too close IM SORRY READERS
