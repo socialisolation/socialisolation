@@ -1,6 +1,7 @@
 |___|
 ![bleh](https://github.com/socialisolation/ashes/blob/8343344d5889384cd56a6d447ed1d16ffe2fa108/df02b171-3717-4a6b-9729-c4b5ef9ce5d9.jpeg)
 |___|
+                                 
                                     our wedding btw no clickbait
 
 ***╮ 𐙚  .   _/ — “ you've hurt yourself and all you were trying to do is show how much you loved them,but ended up feeling unloved. that's why we learn from mistakes,no matter what we'll be useless in reach of love.it was your choice.you know that.. „  · †╭***
