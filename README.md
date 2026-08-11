@@ -21,7 +21,7 @@
 
 ___
 
-` *I* hate *haters* who *doesn't* respect *others* pls *son* sonion *sonic* song *sonlyric* plssss *(as stated...sensitive ppl like ver sensitive to the point of thinking ragebait is bullying dni,respectfully.)*
+` *I* hate *haters* who *doesn't* respect *others* pls *son* sonion *sonic* song *sonlyric* plssss *(as stated...sensitive ppl like very sensitive to the point of thinking ragebait is bullying dni,respectfully.)*
 
 ` **btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
 
