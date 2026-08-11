@@ -23,11 +23,11 @@ ___
 
 ` *I* hate *haters* who *doesn't* respect *others* pls *son* sonion *sonic* song *sonlyric* plssss *(as stated...sensitive ppl like very sensitive to the point of thinking ragebait is bullying dni,respectfully.)*
 
-` **btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
+`` **btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
 
 - DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries if we get there.i'm no magician.
 
-i only type like this because it's oommon,but i swear i type in such a fancy and clear way you'll think i came straight from the 1912's.
+` *i only type like this because it's common,but i swear i type in such a fancy and clear way you'll think i came straight from the 1912's.*
 
 ___
 
