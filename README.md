@@ -18,13 +18,15 @@
 `` *"ur not thomas" I mean bro wtv I guess I still am tommy btw*
 
 ` *"The series are for older audiences and ur a minor and and and!!!" I've already grown out of my innocence yes I'm a teen thank you eh but also in my country (Brazil) we have a different mindset and we learn stuff like that forcefully from our parents at like 6-8 years old (thought it would be 67 didn't you..tsktsk.) we know it's fake too it's not that deep for us and I mean I'm not 11 or something I'm 15. also there's hundreds of kids out there watching hazbin hotel at 12 years old fym.*
+
 ___
 
-` *more* random *info* drop *I* hate *haters* who *doesn't* respect *others* pls *son* sonion *sonic* song *sonlyric* plssss
-___
+` *I* hate *haters* who *doesn't* respect *others* pls *son* sonion *sonic* song *sonlyric* plssss *(as stated...sensitive ppl like ver sensitive to the point of thinking ragebait is bullying dni,respectfully.)*
 
 ` **btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
 
-- DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
+- DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries if we get there.i'm no magician.
+
+___
 
 # `` grace (florian) x tommy (mackenzie) canon literally oml can't you see we're married???? I love my husband I love them I luv me like my gracie...too bad she's dead (reincarnated as fli) smooches ok ik too close IM SORRY READERS i love him so much.
