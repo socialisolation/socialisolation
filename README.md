@@ -16,20 +16,13 @@
 `` "ur not thomas" I mean bro wtv I guess I still am tommy btw
 
 ` "The series are for older audiences and ur a minor and and and!!!" I've already grown out of my innocence yes I'm a teen thank you eh but also in my country (Brazil) we have a different mindset and we learn stuff like that forcefully from our parents at like 6-8 years old (thought it would be 67 didn't you..tsktsk.) we know it's fake too it's not that deep for us and I mean I'm not 11 or something I'm 15. also there's hundreds of kids out there watching hazbin hotel at 12 years old fym.
-
-`` "can I mention u on my GitHub" yes bro (idk why I typed this in I think I js want people to recognise me lol)
-
 ___
 
 ` *more* random *info* drop *I* hate *haters* who *doesn't* respect *others* pls *son* sonion *sonic* song *sonlyric* plssss
-
-`` for people from past drama still stalking me: I've grown out of that and I'm a better person like it's been almost a year (y'all are just mega sensitive??) for people who's reading this and saw my other socials I'm normal (?) at least to not let problematic ppl int so why am I the bad guy...just block me...smh...my fries says I'm sweet n have aura what's ur guys deal w me lol
-anyways pls stop y'all PMO.
-
 ___
 
 ` **btw if you want to be part of my online fam (which I think no one will) I have to at least know you on pt first so we can add each other im always near the bakery so figures.**
 
 - DISCLAIMER: before some of you start something yes my bf is 13 im 15 we're still teens thank you. we don't know if we'll still be together till we're adults so don't get mad at nothing. not saying we will separate, just keep in mind.we might set boundaries.
 
-# `` grace (florian) x tommy (mackenzie) canon literally oml can't you see we're married???? I love my husband I love them I luv me like my gracie...too bad she's dead (reincarnated as fli) smooches ok ik too close IM SORRY READERS
+# `` grace (florian) x tommy (mackenzie) canon literally oml can't you see we're married???? I love my husband I love them I luv me like my gracie...too bad she's dead (reincarnated as fli) smooches ok ik too close IM SORRY READERS i love him so much.
