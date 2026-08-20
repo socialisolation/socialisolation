@@ -1,11 +1,11 @@
 __
 ¨ |___|
-![bleh](https://github.com/thomassheIby/ashes/blob/f51ee9321dd5b24a426612c681944e0d03301cf7/975228d7-70cb-4f08-8f64-2dbe8d1b3c6f.jpg)
+![bleh](https://github.com/thomassheIby/ashes/blob/e39243924b9b4e107a83ad6a3b6f52af9d49be16/f296cddd-45b9-4cd4-8d7e-a855d47e3e88~4.jpg)
   |___| ¨
                                  
                                     
 
-***╮ 𐙚  .   _/ — “ we'll always be together,right?.. „  · †╭***
+***╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭***
 
 `I pretty much like PEAKy blinders. pbs fans int I'm desperate..`
 
