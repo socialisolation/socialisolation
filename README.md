@@ -5,9 +5,9 @@ __
                                  
 
                                   
-[@my sweetheart](https://github.com/FLORIAN-JAZON)
+[my sweetheart](https://github.com/FLORIAN-JAZON)
 
-[@brother dear](https://github.com/FLORIAN-JAZON)
+[brother dear](https://github.com/ChichiiiiKimi)
 
 ‘‘‘ *(only ppl I have btw.)*
 
