@@ -6,7 +6,10 @@ __
 
                                   
 [@my sweetheart](https://github.com/FLORIAN-JAZON)
-___
+
+[@brother dear](https://github.com/FLORIAN-JAZON)
+
+‘‘‘ *(only ppl I have btw.)*
 
 ***╮ 𐙚  .   _/ — “ even if we're gone,we know we've lived through,together .. „  · †╭***
 
